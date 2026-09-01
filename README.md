@@ -1,1 +1,2 @@
-#244107020007-Afrizal Rafli Kusuma Wardana
+Nama : Afrizal Rafli Kusuma Wardana
+NIM : 244107020007
